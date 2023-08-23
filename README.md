@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @bensoul17
 - 👀 I’m interested in photography   
 - 🌱 I’m currently learning coding
-- 💞️ I’m looking to collaborate on female
+- 💞️ I’m looking to collaborate on someone
 - 📫 How to reach me gmail (luther.torralba@gmail.com)
 
 <!---
